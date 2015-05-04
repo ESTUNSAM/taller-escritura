@@ -1,3 +1,2 @@
-# taller-escritura
-Taller de Escritura
+# Taller de escritura
 Un espacio para experimentar y crear
