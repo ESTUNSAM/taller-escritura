@@ -26,10 +26,11 @@ Propuesta de ejercicios: Escritura de ensayo (o dinámica "tres hojitas") a part
 Foro de puesta en común de avances y resultados.
 Moderador/a:
 
-Encuentro 4: 
+Encuentro 4: Narrativas Pedagógicas II
 Video:
 Texto: Fragmentos de Narrativas peagógicas (últimos fascículos)
 Propuesta de ejercicios: Escritura de ensayo grupal a partir de un proyecto o dispositivo interdisciplinario. 
 Foro de puesta en común de avances y resultados.
 Moderador/a:
 
+---En algún momento me parece que estaría bueno trabajar con el armado de un libro poster- libro álbum - recopilando aportes de tod@s... algo así http://www.chubut.edu.ar/descargas/publicaciones/experiencias_investigaciones_educativas.pdf
